@@ -1,2 +1,2 @@
 # resume
-All you guys you can see my resume
+All you guys can see my resume
